@@ -7,3 +7,4 @@
 - ⚡ Fun fact: I've done nothing today
 
 I've moved from github quite a long time ago. I'm posting games on itch.io under the name kevin1e2e
+Edit: this is so off now and looks extremely corny
